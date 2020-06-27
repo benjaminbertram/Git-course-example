@@ -13,3 +13,5 @@ Parzival aka Wade Owen Watts:
 > "I don't want to work with you. You give me the creeps. But if your superiors 
 > are willing to fire your ass and give me your position, I'm in. It's a done deal."
 
+<img src="https://i2.wp.com/stimulatedboredom.com/wp-content/uploads/2012/01/RPO-hideout_mudron_sm.jpg"/>
+
