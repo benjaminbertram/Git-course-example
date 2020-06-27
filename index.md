@@ -7,3 +7,4 @@ Wade Watts is the main character in the novel Ready Player One. Born in a new fu
 * no friends in real life
 * chivalric
 * dedicated and focused
+* IOI cheat0rz, all your base are belong to us!
