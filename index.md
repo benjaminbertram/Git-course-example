@@ -8,3 +8,8 @@ Wade Watts is the main character in the novel Ready Player One. Born in a new fu
 * chivalric
 * dedicated and focused
 * IOI cheat0rz, all your base are belong to us!
+
+Parzival aka Wade Owen Watts:
+> "I don't want to work with you. You give me the creeps. But if your superiors 
+> are willing to fire your ass and give me your position, I'm in. It's a done deal."
+
